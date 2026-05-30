@@ -7,6 +7,11 @@
  <p align="center">
    ${\color{#2100C1} he/ itㅤ{}}$
 
+
+   <p align="center">ㅤㅤㅤ
+     
+ㅤㅤㅤㅤㅤㅤ  [𝗮ta](ame1101.atabook.org)ㅤㅤㅤ✦ㅤㅤㅤ[str𝗮w](americxnee101.straw.page)
+
   
 
 
