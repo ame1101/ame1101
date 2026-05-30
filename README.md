@@ -10,7 +10,7 @@
 
    <p align="center">ㅤㅤㅤ
      
-ㅤㅤㅤㅤㅤㅤ [𝗮ta](ame1101.atabook.org)ㅤㅤㅤ✦ㅤㅤ[str𝗮w](americxnee101.straw.page)
+ㅤㅤㅤㅤㅤㅤ [𝗮ta](ame1101.atabook.org)ㅤㅤㅤ✦ㅤㅤ[str𝗮w (WIP !!!](americxnee101.straw.page)
 
   
 
