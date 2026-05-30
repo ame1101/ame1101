@@ -1,4 +1,13 @@
-## Hi there 👋
+<p align="center">
+  <img src="https://github.com/ame1101/ame1101/blob/3c85b61cf84964d02016671e9d7698ffbe433f3b/Untitled90_20260530173539.png" width="250">
+</p>
+
+<p align="center">
+  𝙐𝗓𝗂ㅤ/ㅤD𝗲𝘃
+
+  (wip)
+
+
 
 <!--
 **ame1101/ame1101** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
