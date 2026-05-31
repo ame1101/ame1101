@@ -12,7 +12,7 @@
      
 ㅤㅤㅤㅤㅤㅤ [𝗮ta](https://ame1101.atabook.org)ㅤㅤㅤ✦ㅤㅤ[str𝗮w](https://americxnee101.straw.page)
 
-  
+  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[prns](https://pronouns.cc/@ame1101)
 
 
 
