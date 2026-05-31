@@ -1,11 +1,15 @@
+![](https://github.com/ame1101/ame1101/blob/416734510dea75b3be74dd917f6c8e3da0aa0b70/Untitled93_20260531134227.png)
+
+
+
 <p align="center">
-  <img src="https://github.com/ame1101/ame1101/blob/3c85b61cf84964d02016671e9d7698ffbe433f3b/Untitled90_20260530173539.png" width="250">
+  <img src="https://github.com/ame1101/ame1101/blob/416734510dea75b3be74dd917f6c8e3da0aa0b70/Untitled92_20260531134058.png" width="250">
 </p>
 
 <p align="center">
- ${\color{#AB12D0} 𝙐𝗓𝗂ㅤ/ㅤD𝗲𝘃{}}$
+ ${\color{#A0BFBF} Cy𝗻ㅤ/ㅤD𝗲𝘃{}}$
  <p align="center">
-   ${\color{#2100C1} he/ itㅤ{}}$
+   ${\color{#EBEBEB} he/ itㅤ{}}$
 
 
    <p align="center">ㅤㅤㅤ
@@ -13,6 +17,7 @@
 ㅤㅤㅤㅤㅤㅤ [𝗮ta](https://ame1101.atabook.org)ㅤㅤㅤ✦ㅤㅤ[str𝗮w](https://americxnee101.straw.page)
 
   ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[prns](https://pronouns.cc/@ame1101)
+  ![](https://github.com/ame1101/ame1101/blob/416734510dea75b3be74dd917f6c8e3da0aa0b70/Untitled94_20260531134336.png)
 
 
 
