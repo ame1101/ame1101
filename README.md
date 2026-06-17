@@ -1,7 +1,11 @@
-<p align="center">
 
-![](https://github.com/ame1101/ame1101/blob/fed259c2518177cd13ab0ad5a797165fde96f6c2/Jirachi.gif)
 
 <p align="center">
 
-info on my straw !!!!
+![](https://github.com/ame1101/ame1101/blob/cdc983d7c5a63ec376cbd711dc9d2c6f009b13b4/Untitled137_20260617133415.png)
+
+
+![](https://github.com/ame1101/ame1101/blob/cdc983d7c5a63ec376cbd711dc9d2c6f009b13b4/Untitled136_20260617133209.png)
+
+
+![](https://github.com/ame1101/ame1101/blob/cdc983d7c5a63ec376cbd711dc9d2c6f009b13b4/Untitled137_20260617133435.png)
